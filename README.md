@@ -1,1 +1,1 @@
-# Practice adn skilling
+# Practice and up-skilling
